@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- E-Guitar
+- Breakdance
+- Animes
+- Coding
+  - Of course :D
+  - That's why we're here
